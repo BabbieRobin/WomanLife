@@ -1,0 +1,2 @@
+# WomanLife
+Women who learn to master and track the menstrual cycle can help you understand your body and frequency and observe any symptoms that may occur at specific stages of the cycle (such as mood swings or headaches).  Cycle tracking can help identify any changes in the menstrual cycle, which can be an indicator of potential health problems. Also, if you avoid pregnancy or try to get pregnant, download it now!
